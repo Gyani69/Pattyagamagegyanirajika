@@ -1,0 +1,2 @@
+# Pattyagamagegyanirajika
+http//github.gyanirajika
